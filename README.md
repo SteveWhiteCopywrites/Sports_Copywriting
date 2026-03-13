@@ -1,5 +1,7 @@
 # Sports Journalism
-A portfolio of sports journalism, including interviews written for the Cardiff 7s Festival.
+Examples of sports journalism including interviews and editorial work produced for the Cardiff 7s Festival programme.
+
+The publication accompanied the annual Cardiff 7s rugby festival and featured player interviews, feature writing and commentary on the culture of the rugby sevens game.
 
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
