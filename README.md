@@ -22,9 +22,9 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 ### Blog: Why athletes bring a winning mentality to the workplace
 [Click here](https://www.linkedin.com/pulse/why-athletes-bring-winning-mentality-workplace-richard-evans/?trackingId=UaHbP3nDyY56SkQC7Jaqsw%3D%3D) to see the blog on LinkedIn.
 
+![ACT blog article example](RE1.png)
 
-
-
+![ACT blog article example](RE2.png)
 
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
