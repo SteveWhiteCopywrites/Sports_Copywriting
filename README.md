@@ -15,6 +15,9 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 ### Featured blog: Harnessing the power of former professional athletes in the workplace: a winning strategy for success
 [Click here](https://www.linkedin.com/pulse/harnessing-power-former-professional-athletes-workplace-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D) to see the blog on LinkedIn.
 
+![ACT blog article example](SM1.png)
+
+![ACT blog article example](SM2.png)
 
 
 
