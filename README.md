@@ -5,6 +5,11 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 [ACT.Community](https://act.community/), formerly Athlete Career Transition, supports professional athletes as they transition from elite sport into new careers. I produced blog and ghostwritten thought-leadership content for founders Andy and Steve Moore and senior team members. Content published on LinkedIn and the ACT website.
 
+### Featured Blog Articles
+
+Examples of blog content written for ACT.Community exploring athlete career transition, leadership and life beyond professional sport.
+
+
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
 
