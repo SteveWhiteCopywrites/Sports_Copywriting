@@ -7,11 +7,7 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 ### What can we learn from athletes' career transitions?
 
-![ACT blog article example](Andy1.png)
-
-![ACT blog article example](Andy2.png)
-
-![ACT blog article example](Andy3.png)
+![ACT blog article example](AM)
 
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
