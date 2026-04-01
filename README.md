@@ -14,12 +14,11 @@ Read on [LinkedIn](https://www.linkedin.com/pulse/what-can-we-learn-from-athlete
 
 <img src="images/AM1.png" width="600">
 
-### Blog: Harnessing the power of former professional athletes in the workplace: a winning strategy for success
-[Click here](https://www.linkedin.com/pulse/harnessing-power-former-professional-athletes-workplace-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D) to see the blog on LinkedIn.
+### Blog: Harnessing the power of former professional athletes in the workplace: a winning strategy for success  
 
-![ACT blog article example](SM1.png)
+Read on [LinkedIn](https://www.linkedin.com/pulse/harnessing-power-former-professional-athletes-workplace-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D)
 
-![ACT blog article example](SM2.png)
+<img src="images/SM1.png" width="600">
 
 ### Blog: Why athletes bring a winning mentality to the workplace
 [Click here](https://www.linkedin.com/pulse/why-athletes-bring-winning-mentality-workplace-richard-evans/?trackingId=UaHbP3nDyY56SkQC7Jaqsw%3D%3D) to see the blog on LinkedIn.
